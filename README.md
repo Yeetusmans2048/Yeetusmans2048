@@ -18,13 +18,7 @@ Sugar comes from sugar cane, which is also a plant in the grass family. People h
 
 In English, the word "grass" appears in several phrases. For example:
 
-"The grass is always greener on the other side" means "people are never happy with what they have and want something else."
-
-"Don't let the grass grow under your feet" means "Do something".
-
-"A snake in the grass" is about a person that will not be honest and will trick others.
-
-Grass is sometimes used as a slang term for cannabis (also called pot, weed, or marijuana)
+"GO TOUCH GRASS"
 <!---
 Yeetusmans2048/Yeetusmans2048 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
